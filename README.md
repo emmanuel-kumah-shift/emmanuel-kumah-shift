@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @emmanuel-kumah-shift
-![image](https://github.com/user-attachments/assets/f8509c6b-898f-48fb-8a92-a23d5a3fdef8)
+![image](https://github.com/user-attachments/assets/cee7c81d-8272-42c3-ad87-10ba7a5346fb)
+
 
 
 
